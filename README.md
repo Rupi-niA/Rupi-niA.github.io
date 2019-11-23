@@ -1,1 +1,1 @@
-# Rupi-niA.github.io
+# Rupi-niA.github.io/rupinia-sinkyu.jp
